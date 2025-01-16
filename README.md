@@ -1,2 +1,7 @@
-# YunYang-HistoricalFiction
-My historical fiction based on tales from Yunyang county, Chongqing, China. 
+# My Literary Works and Artworks
+
+Yunyang: historical fiction
+
+June and Yu: fiction
+
+Art: digital, watercolor and Chinese art
